@@ -6,7 +6,7 @@
 - 👨‍💻 My Portfolio [https://gilded-sprite-1871c7.netlify.app](https://gilded-sprite-1871c7.netlify.app)
 - 🔭 I’m Full Stack SEO Expert.
 - 🌱 On Page SEO, Technical SEO, Link Building(Off Page SEO)
-- 👯 I’m looking to collaborate on any project.
+- 👯 I’m looking to collaborate on any project. (Niche: Technology, [Business](https://www.feedupz.com/), Social Media etc.)
 - 🤔 I’m looking for help with anyone from whom i can learn more.
 - 📫 How to reach me **srabonidatta9@gmail.com**
 
